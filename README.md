@@ -53,16 +53,6 @@ My Hood To Your Hood - Memphis Bleek ft. Beanie Sigel
 Still D.R.E. - Dr. Dre, Snoop Dogg
 
   Tobias Jesso Jr.
-Wish You Well - Emma Louise
-Mexico - Emma Louise
-Falling Apart - Emma Louise
-Just the Way I am - Emma Louise
-Never Making Plans Again - Emma Louise
-Gentleman - Emma Louise
-Shadowman - Emma Louise
-Solitude - Emma Louise
-A Book Left Open in a Wild Field of Flowers - Emma Louise
-When It Comes To You- Emma Louise
 How Do We Make It - Jarryd James
 Ayala (Outro) - XXXTentacion
 Bruised Fruit - St. Paul & The Broken Bones
